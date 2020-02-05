@@ -1,1 +1,1 @@
-http://www.bethanyipc.sg/bible-study-resources/daily-devotions/
+[bethany devotions](http://www.bethanyipc.sg/bible-study-resources/daily-devotions/)
